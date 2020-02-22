@@ -1,0 +1,2 @@
+# nalzk48
+Sendiri
